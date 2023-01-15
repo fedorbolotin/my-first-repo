@@ -2,15 +2,15 @@
 
 ### Geography
 
-I live in Moscow, which is the capital of Russia.
+Currently nomading in Croatia.
 
 ### My favorite things
 
-- Vodka
-- Balalayka
-- Playing with bears
+- vodka;
+- balalayka;
+- playing with bears while maintaining nuclear reactor.
 
 ### Contacts
 
-The best way to contact me is [on VK](https://vk.com/bolotinfa)
+The best way to contact me is [on telegram](https://t.me/bolotinfa)
 
